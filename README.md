@@ -1,0 +1,1 @@
+# dados.script.bycybernodry
